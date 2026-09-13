@@ -6,5 +6,7 @@
  
                                                   thank you 
                                                ･°˖✧◝(⁰▿⁰)◜✧˖°.
-                                https://i.pinimg.com/1200x/30/99/14/309914478107c533407412ecbc29aa43.jpg
+<img width="518" height="261" alt="image" src="https://github.com/user-attachments/assets/9fde09b0-f08e-46b0-99e6-3d19bbc5ca6f" />
+
+                                    
 
