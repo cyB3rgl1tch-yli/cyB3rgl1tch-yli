@@ -6,4 +6,5 @@
  
                                                   thank you 
                                                ･°˖✧◝(⁰▿⁰)◜✧˖°.
-                                               <img width="778" height="778" alt="image" src="https://github.com/user-attachments/assets/d62ad31d-3b64-473f-babb-00417955dca5" />
+                                    <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/603d6c71-f94c-42aa-8136-74a28ca0945c" />
+
